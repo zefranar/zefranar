@@ -44,4 +44,12 @@
 <p     
  <br>   1. ENTP 8w7 (847) chaotic evil choleric, достаточно взбалмошный, вам легче будет назвать меня "самодур".
  <br>   2. ПРЛ (Пограничное Расстройство Личности) в импульсивной форме, перепады от апатии до крайней агрессии и возможное расщепление.
+ <br>   3. Всегда нахожусь вблизи моего чудесного хрустального цветка Хиеса.
 </p>
+
+<p align="center"
+<br> И ты до сих пор не вырвался из хватки моих лап? Занятно... Хочешь узнать, чем я занимаюсь, оттого и идёшь следом, как зачарованный? Будь по-твоему.
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
+<br> <img width="250" src='https://github.com/zefranar/zefranar/blob/main/tumblr_e37dfaccdd0758ab5480610a396ba12b_fa74018f_500.webp?raw=true'> <img width="250" src='https://github.com/zefranar/zefranar/blob/main/tumblr_135957123be10a9ba19389451f114a22_5cb1cdc8_500.webp?raw=true'>
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
+       </p>
