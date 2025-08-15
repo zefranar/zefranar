@@ -105,9 +105,10 @@
 </p>
 
 <p
-<br> Примечательная музыка: Apocalyptica, OOMPH!, БИ-2, In This Moment, Memory of a Melody, Eisbrecher, Ice Nine Kills, Nero's Day At Disneyland, FAKE TYPE, Jeremy Soule, Christopher Larkin;
-<br>
-<br> Примечательная музыка из-за Хиеса: Set It Off, Citizen Soldier, Normandie, Wind Walkers, Bring Me The Horizon;
-<br>
-<br> Остальная музыка: Imagine Dragons, Blind Channel, STARSET (только старые песни), Raindigo, Five Finger Death Punch, Rob Zombie, From Ashes To New, Wage War, Thousand Foot Krutch, Smash Into Pieces, Skillet, Lord Of The Lost, Infected Mushroom, Ludovico Technique, Marilyn Manson, And One, Mindless Self Indulgence, Merta, Bullet For My Valentine, Seether, The Dead Rabbitts, Memphis May Fire, Sick Puppies, Solence (только старые песни), Slipknot, Demon Hunter, The Raven Age, Rave The Reqviem, Hell Boulevard, Shinedown, Sin Shake Sin, The BossHoss, Darkhaus, Heilung, Sowulo, Stahlmann, Adrian Von Ziegler, Letzte Instanz, Adelitas Way, Hildur Guðnadóttir, Gogol Bordello, Coldrain, Gorillaz, Lady Gaga, Arctic Monkeys, Melanie Martinez, IC3PEAK, DECO*27, Alice Schach and the Magic Orchestra.
+<br>    <img align="right"<img width="290" src='https://github.com/zefranar/zefranar/blob/main/Мантикок.png?raw=true'>
+<br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_1fb03e7148b03716b7c6bcce2657e1f7_300b4444_75.webp?raw=true'> <strong>Примечательная музыка</strong>: Apocalyptica, OOMPH!, БИ-2, In This Moment, Memory of a Melody, Eisbrecher, Ice Nine Kills, Nero's Day At Disneyland, FAKE TYPE, Jeremy Soule, Christopher Larkin;
+<br> 
+<br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_1fb03e7148b03716b7c6bcce2657e1f7_300b4444_75.webp?raw=true'> <strong>Примечательная музыка из-за <a href="https://github.com/hiessoovig">Хиеса</a></strong>: Set It Off, Citizen Soldier, Normandie, Wind Walkers, Bring Me The Horizon;
+<br> 
+<br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_1fb03e7148b03716b7c6bcce2657e1f7_300b4444_75.webp?raw=true'> <strong>Остальная музыка</strong>: Imagine Dragons, Blind Channel, STARSET (только старые песни), Raindigo, Five Finger Death Punch, Rob Zombie, From Ashes To New, Wage War, Thousand Foot Krutch, Smash Into Pieces, Skillet, Lord Of The Lost, Infected Mushroom, Ludovico Technique, Marilyn Manson, And One, Mindless Self Indulgence, Merta, Bullet For My Valentine, Seether, The Dead Rabbitts, Memphis May Fire, Sick Puppies, Solence (только старые песни), Slipknot, Demon Hunter, The Raven Age, Rave The Reqviem, Hell Boulevard, Shinedown, Sin Shake Sin, The BossHoss, Darkhaus, Heilung, Sowulo, Stahlmann, Adrian Von Ziegler, Letzte Instanz, Adelitas Way, Hildur Guðnadóttir, Gogol Bordello, Coldrain, Gorillaz, Lady Gaga, Arctic Monkeys, Melanie Martinez, IC3PEAK, DECO*27, Alice Schach and the Magic Orchestra.
       </p>
