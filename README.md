@@ -1,5 +1,5 @@
 <p
-<br> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_37f5bb41110f147c9ad9aa1c6ad5e850_50993c06_75.webp?raw=true'><strong>DNI: если Вы хотите пристать забавы ради, не уважаете личные границы и требуете к себе хорошего отношения, считаете среду интернета и всё в нём "всего лишь пикселями", подсаживаетесь/перекрываете/не слышите двух первых предупреждений, хотите навредить <a href="https://github.com/hiessoovig">моему партнёру</a> или моим друзьям, хотите развести конфликт со мной или моей компанией на ровном месте, имеете негативное мнение относительно моих увлечений и пейрингов.</strong>
+<br> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_37f5bb41110f147c9ad9aa1c6ad5e850_50993c06_75.webp?raw=true'><strong>DNI: если Вы хотите пристать забавы ради, не уважаете личные границы и требуете к себе хорошего отношения, считаете среду интернета и всё в нём "всего лишь пикселями", подсаживаетесь/перекрываете/не слышите двух первых предупреждений, хотите навредить <a href="https://github.com/hiessoovig">моему партнёру</a> или моим друзьям, хотите развести конфликт со мной или моей компанией на ровном месте, имеете негативное мнение относительно моих увлечений и пейрингов, являетесь мультишипперами и выставляете это как норму для других.</strong>
 <br>
 <br> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_37f5bb41110f147c9ad9aa1c6ad5e850_50993c06_75.webp?raw=true'><strong>Не поддерживаю c+h, триггерюсь при перекрытии скина.</strong>
 <br>
@@ -76,3 +76,12 @@
 <br> <img width="510" src='https://github.com/zefranar/zefranar/blob/main/tumblr_7fe10e73c1201e310ede678418b88caf_e1f89af6_540.webp?raw=true'>
 <br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
 </p>
+
+<p align="center"
+<br> Спрашиваешь меня, путник, о каких иных мирах мне довелось узнать в течении длительного путешествия сквозь вселенные? Позволь перечислить каждый, в коем я побывал!
+      </p>
+
+<p
+<br> Примечательные игры: Hollow Knight, Don't Starve (Classic/Together), TES, The Witcher 3: Wild Hunt, Darksiders, Dark Souls, Elden Ring, Terraria: Calamity mod, Minecraft, League of Legends, The Binding of Isaac, Dead Cells;
+<br> Остальные игры: CookieRun: OvenBreak, CookieRun: Kingdom, Dying Light, Lobotomy Corporation, OMORI, Resident Evil, The Forest/Sons of the Forest, S.T.A.L.K.E.R., Heavy Rain, Silent Hill, Beyond: Two Souls, Oxygen Not Included, Subnautica, Stardew Valley, Genshin Impact, Honkai Star Rail, Zenless Zone Zero, Phasmophobia, Starbound, RimWorld, Spore, Outlast, FNaF, Inscryption, Poppy Playtime, World of Tanks, Outer Wilds, Raft, Ori and the Blind Forest/Ori and the Will of the Wisps, Hello Neighbor, The Beast Inside, Watch_Dogs, The Long Dark, Fran Bow, Little Misfortune, Undertale, Deltarune, Shadow of the Colossus, Bendy and the Ink Machine, 
+      </p>
