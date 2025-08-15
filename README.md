@@ -112,3 +112,11 @@
 <br> 
 <br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_1fb03e7148b03716b7c6bcce2657e1f7_300b4444_75.webp?raw=true'> <strong>Остальная музыка</strong>: Imagine Dragons, Blind Channel, STARSET (только старые песни), Raindigo, Five Finger Death Punch, Rob Zombie, From Ashes To New, Wage War, Thousand Foot Krutch, Smash Into Pieces, Skillet, Lord Of The Lost, Infected Mushroom, Ludovico Technique, Marilyn Manson, And One, Mindless Self Indulgence, Merta, Bullet For My Valentine, Seether, The Dead Rabbitts, Memphis May Fire, Sick Puppies, Solence (только старые песни), Slipknot, Demon Hunter, The Raven Age, Rave The Reqviem, Hell Boulevard, Shinedown, Sin Shake Sin, The BossHoss, Darkhaus, Heilung, Sowulo, Stahlmann, Adrian Von Ziegler, Letzte Instanz, Adelitas Way, Hildur Guðnadóttir, Gogol Bordello, Coldrain, Gorillaz, Lady Gaga, Arctic Monkeys, Melanie Martinez, IC3PEAK, DECO*27, Alice Schach and the Magic Orchestra.
       </p>
+
+<p align="center"
+<br>
+<br>
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
+<br> <img width="530" src='https://github.com/zefranar/zefranar/blob/main/tumblr_7bda9111d152e60d189f6cbcc30c418c_5ea48a91_500.webp?raw=true'>
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
+      </p>
