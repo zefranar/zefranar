@@ -57,6 +57,14 @@
 
 <p align="center"
 <br> Первостепенное моё занятие — развитие масштабной вселенной, которая называется <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500.webp?raw=true'> <strong>Не́бельт</strong> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500.webp?raw=true'>, потому я и рисую, и сказы пишу, и взращиваю целый большой мир, наполненный анцесами, морхами и эльфами! В первую очередь я — Творец, в поисках истины спустившийся сначала к деусам, а после к анцесам, там же я нашёл и своего милого <a href="https://github.com/hiessoovig">уфрура</a>.
+       </p>
+
+<p align="center"
+<br> <img width="100" src='https://github.com/zefranar/zefranar/blob/main/tumblr_ea0aebe2b6505d210e895e3ac98bba22_32eca5c3_1280.png?raw=true'>
+       </p>
+
+<p align="center"
+<br> Самыми чудесными существами, однако, для меня стали дайгиры. Кажется вы, люди, зовёте их драконами? И сам я имею черты дракона. 
       </p>
 
 <p align="center"
