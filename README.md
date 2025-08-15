@@ -138,6 +138,6 @@
 
 <p align="center"
 <br>
-<br> P.P.S. Не злите котика Уни, иначе он обидится. 
+<br> P.P.S. Не злите котика Уни, иначе он обидится (погладьте его по голове, когда видите эту картинку). 
 <br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/Уни.png?raw=true'>
 </p>
