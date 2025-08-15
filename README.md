@@ -103,3 +103,11 @@
 <p align="center"
 <br> И даже сказанное выше не удовлетворило твоё любопытство? Нос у тебя шибко длинный, подумай хорошенько, стоит ли идти дальше... Ах, вывести я тебя должен был? Точно-точно, припоминаю. Идём, расскажу и о мелодиях, что слушаю для успокоения души.
 </p>
+
+<p
+<br> Примечательная музыка: Apocalyptica, OOMPH!, БИ-2, In This Moment, Memory of a Melody, Eisbrecher, Ice Nine Kills, Nero's Day At Disneyland, FAKE TYPE, Jeremy Soule, Christopher Larkin;
+<br>
+<br> Примечательная музыка из-за Хиеса: Set It Off, Citizen Soldier, Normandie, Wind Walkers, Bring Me The Horizon;
+<br>
+<br> Остальная музыка: Imagine Dragons, Blind Channel, STARSET (только старые песни), Raindigo, Five Finger Death Punch, Rob Zombie, From Ashes To New, Wage War, Thousand Foot Krutch, Smash Into Pieces, Skillet, Lord Of The Lost, Infected Mushroom, Ludovico Technique, Marilyn Manson, And One, Mindless Self Indulgence, Merta, Bullet For My Valentine, Seether, The Dead Rabbitts, Memphis May Fire, Sick Puppies, Solence (только старые песни), Slipknot, Demon Hunter, The Raven Age, Rave The Reqviem, Hell Boulevard, Shinedown, Sin Shake Sin, The BossHoss, Darkhaus, Heilung, Sowulo, Stahlmann, Adrian Von Ziegler, Letzte Instanz, Adelitas Way, Hildur Guðnadóttir, Gogol Bordello, Coldrain, Lady Gaga, Arctic Monkeys, Melanie Martinez, IC3PEAK, DECO*27, Alice Schach and the Magic Orchestra.
+      </p>
