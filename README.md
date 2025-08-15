@@ -18,15 +18,9 @@
 
 <p align="center"
 <br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
-       </p>
-
-<p align="center"
 <br> <img width="250" src='https://github.com/zefranar/zefranar/blob/main/tumblr_1abd390701da8b15ce771186670bbf39_8a3b8b35_400.webp?raw=true'> <img width="250" src='https://github.com/zefranar/zefranar/blob/main/tumblr_a5edf64a9425ad84e1ea2ae0a45c06d0_c6877b91_400.webp?raw=true'>
-      </p>
-
-<p align="center"
 <br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
-       </p>
+      </p>
 
 <p align="center"
 <br> Имя, которое дали мне? О... Зови меня... 
@@ -64,3 +58,9 @@
 <p align="center"
 <br> Первостепенное моё занятие — развитие масштабной вселенной, которая называется <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500.webp?raw=true'> <strong>Не́бельт</strong> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500.webp?raw=true'>, потому я и рисую, и сказы пишу, и взращиваю целый большой мир, наполненный анцесами, морхами и эльфами! В первую очередь я — Творец, в поисках истины спустившийся сначала к деусам, а после к анцесам, там же я нашёл и своего милого <a href="https://github.com/hiessoovig">уфрура</a>.
       </p>
+
+<p align="center"
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
+<br> <img width="510" src='https://github.com/zefranar/zefranar/blob/main/tumblr_7fe10e73c1201e310ede678418b88caf_e1f89af6_540.webp?raw=true'>
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
+</p>
