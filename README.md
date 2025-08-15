@@ -120,3 +120,24 @@
 <br> <img width="530" src='https://github.com/zefranar/zefranar/blob/main/tumblr_7bda9111d152e60d189f6cbcc30c418c_5ea48a91_500.webp?raw=true'>
 <br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
       </p>
+
+<p align="center"
+<br> <strong>Вот мы и пришли. Надеюсь, что мой рассказ удовлетворил тебя и ты больше никогда не появишься в этих землях, для людей место есть лишь на Земле. Не сбейся со своего пути и пусть деусы всегда будут благосклонны к тебе, заблудшая душа.</strong>
+</p>
+
+<p align="center"
+<br>
+<br> <img width="500" src='https://github.com/zefranar/zefranar/blob/main/tumblr_857e94c49e2a6c5655bba0e79000cc45_4797e467_1280.png?raw=true'>
+<br> <img width="400" src='https://github.com/zefranar/zefranar/blob/main/tumblr_c19d51ee0c6ef33d4f53468ed85eb962_4540d485_2048.png?raw=true'>
+<br> <img width="500" src='https://github.com/zefranar/zefranar/blob/main/tumblr_857e94c49e2a6c5655bba0e79000cc45_4797e467_1280.png?raw=true'>
+       </p>
+
+<p
+<br> P.S. Помимо указанной выше информации, Вы можете ознакомиться с <a href="https://ru.pronouns.page/@zefranar">pronouns page</a> (работает только с ВПН), все соцсети и методы связи со мной указаны в моём профиле.
+</p>
+
+<p align="center"
+<br>
+<br> P.P.S. Не злите котика Уни, иначе он обидится. 
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_0a93bb92d38139727594fa2235cf326b_1c9e8350_1280.png?raw=true'>
+</p>
