@@ -139,5 +139,5 @@
 <p align="center"
 <br>
 <br> P.P.S. Не злите котика Уни, иначе он обидится. 
-<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_0a93bb92d38139727594fa2235cf326b_1c9e8350_1280.png?raw=true'>
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/Уни.png?raw=true'>
 </p>
