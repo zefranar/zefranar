@@ -88,7 +88,18 @@
 <br> <img align="left"<img width="300" src='https://github.com/zefranar/zefranar/blob/main/Шака.png?raw=true'>
 <br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_3d7e2dfbb06c5c49cafc94dc37a8fe82_016a0e64_100.webp?raw=true'> <strong>Примечательная мультипликация и анимационные сериалы</strong>: How to Train Your Dragon, Shrek, My Little Pony: Friendship Is Magic, Teenage Mutant Ninja Turtles (2003), Scooby-Doo, Бременские музыканты (1969), Rise of the Guardians, Jujutsu Kaisen;
 <br>
-<br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_3d7e2dfbb06c5c49cafc94dc37a8fe82_016a0e64_100.webp?raw=true'> <strong>Примечательные манги, маньхуа, веб-комиксы</strong>: Homestuck, Tian Guan Ci Fu, Jujutsu Kaisen, Mo Dao Zu Shi;
+<br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_3d7e2dfbb06c5c49cafc94dc37a8fe82_016a0e64_100.webp?raw=true'> <strong>Примечательные манги, маньхуа, веб-комиксы</strong>: Homestuck, Darksiders, Tian Guan Ci Fu, Jujutsu Kaisen, Mo Dao Zu Shi;
 <br>
 <br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_3d7e2dfbb06c5c49cafc94dc37a8fe82_016a0e64_100.webp?raw=true'> <strong>Примечательные книги</strong>: Tian Guan Ci Fu, Mo Dao Zu Shi, детективы Ю Несбё («Нетопырь», «Тараканы», «Красношейка»), детективы Александры Марининой (из серии Анастасии Каменской), Михаил Булгаков («Мастер и Маргарита», «Белая гвардия»), маршал Жуков («Воспоминания и размышления»), Конан Дойл (приключения Шерлока Холмса).
       </p>
+
+<p align="center"
+<br>
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
+<br> <img width="510" src='https://github.com/zefranar/zefranar/blob/main/tumblr_c3030022c64a4a2280c439a4518ea5a3_54154736_540.webp?raw=true'>
+<br> <img width="600" src='https://github.com/zefranar/zefranar/blob/main/tumblr_67ac92af58713f5779bcbc8bd559dd69_36aefe25_1280.png?raw=true'>
+</p>
+
+<p align="center"
+<br> И даже сказанное выше не удовлетворило твоё любопытство? Нос у тебя шибко длинный, подумай хорошенько, стоит ли идти дальше... Ах, вывести я тебя должен был? Точно-точно, припоминаю. Идём, расскажу и о мелодиях, что слушаю для успокоения души.
+</p>
