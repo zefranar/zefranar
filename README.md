@@ -108,7 +108,7 @@
 
 <p
 <br>    <img align="right"<img width="290" src='https://github.com/zefranar/zefranar/blob/main/Мантикок.png?raw=true'>
-<br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_1fb03e7148b03716b7c6bcce2657e1f7_300b4444_75.webp?raw=true'> <strong>Примечательная музыка</strong>: Apocalyptica, OOMPH!, БИ-2, In This Moment, Memory of a Melody, Eisbrecher, Ice Nine Kills, Nero's Day At Disneyland, FAKE TYPE, Jeremy Soule, Christopher Larkin;
+<br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_1fb03e7148b03716b7c6bcce2657e1f7_300b4444_75.webp?raw=true'> <strong>Примечательная музыка</strong>: Apocalyptica, OOMPH!, БИ-2, Мельница, In This Moment, Memory of a Melody, Eisbrecher, Ice Nine Kills, Nero's Day At Disneyland, FAKE TYPE, Jeremy Soule, Christopher Larkin;
 <br> 
 <br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_1fb03e7148b03716b7c6bcce2657e1f7_300b4444_75.webp?raw=true'> <strong>Примечательная музыка из-за <a href="https://github.com/hiessoovig">Хиеса</a></strong>: Set It Off, Citizen Soldier, Normandie, Wind Walkers, Bring Me The Horizon;
 <br> 
