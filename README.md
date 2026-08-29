@@ -51,7 +51,7 @@
 <p     
  <br>   1. ENTP sx/so8w7 (873) chaotic evil choleric, достаточно взбалмошный, вам легче будет назвать меня "самодур".
  <br>   2. ПРЛ (Пограничное Расстройство Личности) в импульсивной форме, перепады от апатии до крайней агрессии и возможное расщепление.
- <br>   3. Всегда нахожусь вблизи моего чудесного хрустального цветка <a href="https://github.com/hiessoovig">Хиеса</a>, а также в сопровождении любимых мне душ <a href=https://github.com/Asterionrio">Астера</a>, <a href=https://github.com/drugslover">Дилл</a>, <a href=https://github.com/amygdala-hippocampal">Шины</a> и <a href=https://github.com/VivMrt">Рин</a>.
+ <br>   3. Всегда нахожусь вблизи моего чудесного хрустального цветка <a href="https://github.com/hiessoovig">Хиеса</a>, а также в сопровождении любимых мне душ <a href="https://github.com/Asterionrio">Астера</a>, <a href="https://github.com/drugslover">Дилл</a>, <a href="https://github.com/amygdala-hippocampal">Шины</a> и <a href="https://github.com/VivMrt">Рин</a>.
 </p>
 
 <p align="center"
