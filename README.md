@@ -1,7 +1,7 @@
 <p
 <br> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_37f5bb41110f147c9ad9aa1c6ad5e850_50993c06_75.webp?raw=true'><strong>ЕСЛИ ВЫ ПОДДЕРЖИВАЕТЕ COPY TOWN, НЕ КОНТАКТИРУЕЙТЕ СО МНОЙ НИ В КАКОЙ ИЗ ФОРМ, ВЫ ПРЕДУПРЕЖДЕНЫ! Я НЕ ПРИЕМЛЮ КОПИРОВАНИЕ И/ИЛИ ИСПОЛЬЗОВАНИЕ МОЕГО ТВОРЧЕСТВА И НЕ ПОДДЕРЖИВАЮ КОПИРОВАНИЕ СКИНОВ!</strong>
 <br>
-<br> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_37f5bb41110f147c9ad9aa1c6ad5e850_50993c06_75.webp?raw=true'><strong>DNI: если Вы хотите пристать забавы ради, не уважаете личные границы и требуете к себе хорошего отношения, считаете среду интернета и всё в нём "всего лишь пикселями", подсаживаетесь/перекрываете/не слышите двух первых предупреждений, хотите навредить <a href="https://github.com/hiessoovig">моему партнёру</a> или моим друзьям, хотите развести конфликт со мной или моей компанией на ровном месте, имеете негативное мнение относительно моих увлечений и пейрингов, являетесь мультишипперами и выставляете это как норму для других, копируете чужое творчество и/или защищаете идею о том, что плагиат это нормально.</strong>
+<br> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_37f5bb41110f147c9ad9aa1c6ad5e850_50993c06_75.webp?raw=true'><strong>DNI: если Вы хотите пристать забавы ради, не уважаете личные границы и требуете к себе хорошего отношения, считаете среду интернета и всё в нём "всего лишь пикселями", подсаживаетесь/перекрываете/не слышите двух первых предупреждений, хотите навредить моим друзьям, хотите развести конфликт со мной или моей компанией на ровном месте, имеете негативное мнение относительно моих увлечений и пейрингов, являетесь мультишипперами и выставляете это как норму для других, копируете чужое творчество и/или защищаете идею о том, что плагиат это нормально.</strong>
 <br>
 <br> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_37f5bb41110f147c9ad9aa1c6ad5e850_50993c06_75.webp?raw=true'><strong>c+h только для близких, триггерюсь при перекрытии моего скина и скинов моих друзей.</strong>
 <br>
@@ -51,7 +51,7 @@
 <p     
  <br>   1. ENTP sx/so8w7 (sx/so8so/sx7so3) chaotic evil choleric, достаточно взбалмошный, вам легче будет назвать меня "самодур".
  <br>   2. ПРЛ (Пограничное Расстройство Личности) в импульсивной форме, перепады от апатии до крайней агрессии и возможное расщепление.
- <br>   3. Всегда нахожусь вблизи моего чудесного хрустального цветка <a href="https://github.com/hiessoovig">Хиеса</a>, а также в сопровождении любимых мне душ <a href="https://github.com/Asterionrio">Астера</a>, <a href="https://github.com/drugslover">Дилл</a>, <a href="https://github.com/amygdala-hippocampal">Шины</a> и <a href="https://github.com/VivMrt">Рин</a>.
+ <br>   3. Всегда нахожусь в сопровождении любимых мне душ <a href="https://github.com/Asterionrio">Астера</a>, <a href="https://github.com/drugslover">Дилл</a>, <a href="https://github.com/amygdala-hippocampal">Шины</a> и <a href="https://github.com/VivMrt">Рин</a>.
 </p>
 
 <p align="center"
@@ -62,7 +62,7 @@
        </p>
 
 <p align="center"
-<br> Первостепенное моё занятие — развитие масштабной вселенной, которая называется <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500.webp?raw=true'> <strong>Не́бельт</strong> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500.webp?raw=true'>, потому я и <a href="https://t.me/nebula_amissa">рисую</a>, и сказы пишу, и взращиваю целый большой мир, наполненный анцесами, морхами и лонаури! В первую очередь я — Творец, в поисках истины спустившийся сначала к деусам, а после к анцесам, там же я нашёл и своего милого <a href="https://github.com/hiessoovig">уфрура</a>.
+<br> Первостепенное моё занятие — развитие масштабной вселенной, которая называется <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500.webp?raw=true'> <strong>Не́бельт</strong> <img width="20" src='https://github.com/zefranar/zefranar/blob/main/tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500.webp?raw=true'>, потому я и <a href="https://t.me/nebula_amissa">рисую</a>, и сказы пишу, и взращиваю целый большой мир, наполненный анцесами, морхами и лонаури! В первую очередь я — Творец, в поисках истины спустившийся сначала к деусам, а после к анцесам, там же я нашёл и своего милого уфрура.
        </p>
 
 <p align="center"
