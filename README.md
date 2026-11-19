@@ -96,7 +96,7 @@ In Stars and Time;
 <br>
 <br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_3d7e2dfbb06c5c49cafc94dc37a8fe82_016a0e64_100.webp?raw=true'> <strong>Примечательные манги, маньхуа, веб-комиксы</strong>: Homestuck, Darksiders, Tian Guan Ci Fu, Jujutsu Kaisen, Mo Dao Zu Shi;
 <br>
-<br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_3d7e2dfbb06c5c49cafc94dc37a8fe82_016a0e64_100.webp?raw=true'> <strong>Примечательные книги</strong>: Tian Guan Ci Fu, Mo Dao Zu Shi, детективы Ю Несбё («Нетопырь», «Тараканы», «Красношейка»), детективы Александры Марининой (из серии Анастасии Каменской), Михаил Булгаков («Мастер и Маргарита», «Белая гвардия»), маршал Жуков («Воспоминания и размышления»), Конан Дойл (приключения Шерлока Холмса).
+<br> <img width="15" src='https://github.com/zefranar/zefranar/blob/main/tumblr_3d7e2dfbb06c5c49cafc94dc37a8fe82_016a0e64_100.webp?raw=true'> <strong>Примечательные книги</strong>: Мосян Тунсю («Магистр дьявольского культа», «Благословение небожителей»), детективы Ю Несбё («Нетопырь», «Тараканы», «Красношейка»), детективы Александры Марининой (из серии Анастасии Каменской), Михаил Булгаков («Мастер и Маргарита», «Белая гвардия»), маршал Жуков («Воспоминания и размышления»), Конан Дойл (приключения Шерлока Холмса), Александр Бушков («Россия, которой не было»), Анджей Сапковский («Бестиарий. Создания света, мрака, полумрака и тьмы»).
       </p>
 
 <p align="center"
